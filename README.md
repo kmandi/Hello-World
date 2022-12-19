@@ -2,4 +2,4 @@
 
 Hi...
 
-I'm kartik Mandi.I am from west Bengal.
+I'm kartik Mandi. I am from west Bengal.
